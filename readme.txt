@@ -1,3 +1,6 @@
+Original construction mod code saved for prosperity. Enjoy my absolute horribe english if you plan to read any of this.
+
+
 Note: This readme.txt has not been updated recently. Please see Version-history.txt for latest changes.
 
 ----
